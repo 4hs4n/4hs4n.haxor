@@ -1,0 +1,2 @@
+# 4hs4n.haxor
+THIS TOOLS IS FREE FOR YOU
